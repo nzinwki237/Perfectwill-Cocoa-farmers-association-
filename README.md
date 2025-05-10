@@ -1,2 +1,4 @@
 # Perfectwill-Cocoa-farmers-association-
 Perfectwill Cocoa Farm is a community-driven agricultural initiative based in Cameroon, focused on the sustainable cultivation of cocoa. The farm aims to become a leading supplier of high-quality cocoa beans while creating jobs, empowering local farmers, and contributing to rural development.
+Our mission is to produce premium-grade cocoa using environmentally friendly farming practices while supporting the local community through fair employment, training, and economic inclusion.
+We are seeking strategic investors and partners to help scale the farm’s production capacity, introduce modern farming techniques, and develop value-added cocoa products. With the right support, Perfectwill Cocoa Farm will contribute significantly to Cameroon’s cocoa industry and the wellbeing of its people.
